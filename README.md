@@ -1,2 +1,0 @@
-# christinejean
-My personal website
